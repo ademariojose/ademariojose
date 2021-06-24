@@ -9,7 +9,7 @@
 
 - 📫 How to reach me: <a href="mailto:ademario.silva@pontomais.com.br" target="_blank">**ademario.silva@pontomais.com.br**</a>
 
-- ⚡ Fun fact: I do swimming and calisthenics. I like to draw.
+- ⚡ Fun fact: I like to travel and play games.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
